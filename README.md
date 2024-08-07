@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any companies
 - 📫 How to reach me : aditya.takariyanto@gmail.com
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I'm black chinese !! or not?
+- ⚡ Fun fact: I'm javanese chinese !! interesting isn't it? (javanese is not japanese, it's one of indonesian tribes or places)
 
 <!---
 4DTaka/4DTaka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
